@@ -1,0 +1,1 @@
+# it_study_planner_ai_pairr3
